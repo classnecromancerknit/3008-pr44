@@ -1,4 +1,4 @@
-#  
+#  Experience 3008 like never before with new Script for 3008, the #1 Script. Includes private server access and esp for unbeatable performance.
 
 
 
